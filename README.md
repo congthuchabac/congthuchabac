@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+"Công thức hạ bậc là một phương pháp toán học dùng để giảm độ bậc của các hàm lượng giác, giúp đơn giản hóa các bài toán phức tạp trong giải tích. Đặc biệt, công thức này được sử dụng để biến đổi các hàm lượng giác có bậc cao thành các hàm lượng giác bậc thấp hơn, từ đó dễ dàng hơn trong việc tích phân hoặc giải phương trình.
+Website: https://congthuchabac.com/
+#congthuchabac #ungdungcongthuchabac"
+https://www.youtube.com/channel/UCtFUnhJYrtsTfyAEmsiM4-Q
+https://gravatar.com/congthuchabac
+https://www.tumblr.com/congthuchabac/
+https://www.deviantart.com/congthuchabac
